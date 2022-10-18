@@ -1,9 +1,9 @@
 💬 Discord : https://discord.gg/DzNcCdQff6
 --------------------------------------------------------------------
-Le But de ce serveur est de faire vérifier des liens. Mais comment? Il a rien de plus simple, aller sur le discord et aller dans la section    
-**SEND LINKS**, envoyez vos lien et nous allons le vérifier! Tout est automatique, c'est utile pour des vidéos Youtube, évouluer les anti-virus, ect. Parfois on se demande si on peut vraiment gagner une voiture sur ce site... Et bien aller sur Suspicious Links (Malinks) et envoyer nous le lien aller le faire vérifier! 
-Tous ce qui a de plus Simple! Plus en plus que vous envoyez des liens, plus de chance vous avez de gagner les giveaways. Aussi vous aurez des crédit si
-le lien ce retrouve sur Youtube.
+***Mot de passe : malinks_***
+--------------------------------------------------------------------
+**Avertissement : Nous somme point responsable des dommages causer à votre ordinateur.**
+--------------------------------------------------------------------
 
 **FAQ :**
 
